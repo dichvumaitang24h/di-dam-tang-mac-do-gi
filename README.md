@@ -11,7 +11,7 @@
 # 
 
 # Màu sắc: Tốt nhất nên chọn màu đen, trắng hoặc các màu trung tính như xám, xanh than. Tránh tuyệt đối các màu sắc sặc sỡ như đỏ, cam, vàng chói, hồng…
-
+Xem thêm: https://maitanggiangtho.vn/di-dam-tang-mac-do-gi/
 # 
 
 # Kiểu dáng: Trang phục nên gọn gàng, lịch sự, không hở hang, không bó sát hay ngắn quá mức.
